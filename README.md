@@ -1,2 +1,2 @@
-# lol 
-# ce jeu est vraiment tres fun 
+# les chats sont beaux 
+# quand ils sont noirs 
