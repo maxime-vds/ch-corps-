@@ -1,2 +1,2 @@
-# les chats sont beaux 
-# quand ils sont noirs 
+# les chats sont sympas 
+# quand ils sont roux miaou 
